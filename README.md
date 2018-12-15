@@ -1,2 +1,2 @@
 # Self3
-SELFBOT LINE ™❍ざูຮℓמՁஞণ  PY3 login
+SELFBOT LINE ™THE MOB  PY3 login
